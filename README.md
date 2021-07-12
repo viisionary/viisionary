@@ -5,5 +5,6 @@
 [dev ops notes](https://www.notion.so/visionary-/57bed1d156b24c1a8722abef61f83b6c?v=064c4c9f0f29482b867b4529835e7fa9)
 
 ### links
-1. [twitter](https://twitter.com/visionary_mi)
-2. [ins](https://www.instagram.com/mia_.min/)
+1. (visionary.top)
+2. [twitter](https://twitter.com/visionary_mi)
+3. [ins](https://www.instagram.com/mia_.min/)
